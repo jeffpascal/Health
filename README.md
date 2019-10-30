@@ -16,6 +16,8 @@
 
 ### Romana
 
+#### Mancare admisa:
+
 - Carne: Carne roșie, friptură, șuncă, mezeluri, slănină, pui și curcan.
 - Pește gras: cum ar fi somonul, păstrăvul, tonul și macroul.
 - Ouă: căutați ouă întregi păstrate sau omega-3.
